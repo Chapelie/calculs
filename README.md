@@ -210,4 +210,5 @@ If you want to Download [Free Admin Templates](https://themeselection.com/item/c
 - Pinterest : [https://pinterest.com/themeselect/](https://pinterest.com/themeselect/)
 - Instagram : [https://www.instagram.com/themeselection/](https://www.instagram.com/themeselection/)
 #   C o l l e c t e i n g P r o j e c t  
+ #   c a l c u l s  
  
